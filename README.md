@@ -1,0 +1,1 @@
+# obsidian-images-2026
